@@ -1,0 +1,1 @@
+# 09011182328020_Azra-Syari-Aisyah_tugas-chapter-2-data-mining-fix
